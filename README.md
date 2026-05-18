@@ -12,15 +12,15 @@
 
 
 <p align="center">
-<img src="https://files.catbox.moe/4lxgay.png" width="80%" height="1000%"> 
+<img src="https://files.catbox.moe/4lxgay.png" width="100%" height="1000%"> 
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/5h11dg.png" width="80%" height="1000%"> 
+<img src="https://files.catbox.moe/5h11dg.png" width="100%" height="1000%"> 
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/pyf1ew.png" width="80%" height="1000%"> 
+<img src="https://files.catbox.moe/pyf1ew.png" width="100%" height="1000%"> 
 </p>
 
 <p align="center">
