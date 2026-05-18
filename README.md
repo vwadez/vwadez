@@ -1,4 +1,4 @@
-WORK IN PROGRESS DONT SHIT ON ME.
+
 <div align="center">
 
 
@@ -7,13 +7,13 @@ WORK IN PROGRESS DONT SHIT ON ME.
 </p>
 　　‎
 <p align="center">
-<img src="https://files.catbox.moe/ucxiky.png" width="100%" height="1000%"> 
+<img src="https://files.catbox.moe/wc5wb6.png" width="100%" height="1000%"> 
 </p>
 
 
 
 <p align="center">
-<img src="https://files.catbox.moe/0mdehz.png" width="100%" height="1000%"> 
+<img src="https://files.catbox.moe/a5i2e1.png" width="100%" height="1000%"> 
 </p>
 
 <p align="center">
