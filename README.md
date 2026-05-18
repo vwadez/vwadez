@@ -48,14 +48,6 @@
 
 respect my dni. I choose who gets near the radioactive waste barrel.
 
-⪩ discord :: vwadez ⪨
-
-
-
-
-
-
-✦ ⌗ [𝔸𝕥𝕒𝕓𝕠𝕠𝕜]()? ˗ˏˋ ★* (not done)
 
 
 <div align="center">
