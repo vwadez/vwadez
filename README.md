@@ -29,34 +29,29 @@
 
 
 
-✧ ˚₊‧꒰ WADE ⋆ 𝑰𝑵𝑭𝑷 ꒱ ‧₊˚✧
 
+
+✦ ˚₊‧꒰ WADE ꒱ ‧₊˚✦
 ➛ ˗ˏˋ 𝑨𝒏𝒚 / 𝑷𝒓𝒏𝒔 ·⌒⌒· 𝑸𝒖𝒆𝒔𝒕𝒊𝒐𝒏𝒊𝒏𝒈 ˎˊ˗
 
 ┊͙ ❝ Maximum effort. Minimum dignity. ❞
 
-⟡ ⟡ FANDOMS 
 
-MARVEL 
+⟡ fandoms: marvel only. i don’t consume other media.
 
-(thats it. i dont consume other media.
-i use to be in a few other fandoms but idgaf about them anymore)
+⟡ c+h freely · int encouraged.  (im nice i promise)
 
-ᝰ⠀⟡ DNI LIST ⟡ 
+⟡ safe serv’s local emotionally unstable mercenary
 
-Personal space. I choose who gets near the radioactive waste barrel.
+ᝰ⠀⟡ DNI :: basic criteria + the usual freak behavior
+(bigotry, exclusionists, pro/comshippers, incest/pedo defenders, rape joke enthusiasts, fetishizers, etc.)
 
-⤷ Do not interact if you’re a Deadpool hater, racist, anti-semitic, xenophobic, islamophobic, ableist, or LGBTQIA+phobic — including transmeds, TERFs, exclusionists, and anyone who disrespects identities or pronouns. 
+respect my dni. I choose who gets near the radioactive waste barrel.
 
-If you joke about rape, use slurs you can’t reclaim, or believe racial minorities can’t be racist, you’re not welcome. The same goes for pro-shippers, anti-antis, comshippers, and anyone who claims “fiction doesn’t affect reality.” 
-
-If you ship incest or pedophilia, fetishize LGBTQ+ pairings, identify as a fujoshi/fudanshi, or romanticize abuse, mental illness, or self-harm — don’t interact. This space is not for those interested in vore, or other immoral content. I’m also uncomfortable with anyone from the Forsaken or CRK fandoms.
-
-⟡ ⟡ Respect boundaries or get blocked without ceremony.
+⪩ discord :: vwadez ⪨
 
 
 
-⪩ㅤdiscord: vwadez ⪨
 
 
 
