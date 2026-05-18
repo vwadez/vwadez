@@ -32,6 +32,7 @@
 
 
 ✦ ˚₊‧꒰ WADE ꒱ ‧₊˚✦
+
 ➛ ˗ˏˋ 𝑨𝒏𝒚 / 𝑷𝒓𝒏𝒔 ·⌒⌒· 𝑸𝒖𝒆𝒔𝒕𝒊𝒐𝒏𝒊𝒏𝒈 ˎˊ˗
 
 ┊͙ ❝ Maximum effort. Minimum dignity. ❞
