@@ -28,6 +28,13 @@
 
 ┊͙ ❝ Maximum effort. Minimum dignity. ❞
 
+⟡ ⟡ FANDOMS 
+
+MARVEL 
+
+(thats it. i dont consume other media.
+i use to be in a few other fandoms but idgaf about them anymore)
+
 ᝰ⠀⟡ DNI LIST ⟡ 
 
 Personal space. I choose who gets near the radioactive waste barrel.
