@@ -18,14 +18,14 @@
 </p>
 
 <p align="center">
-<a href="https://vwadez.atabook.org/">
-  <img src="https://files.catbox.moe/pyf1ew.png" alt="https://vwadez.atabook.org" width="10000">
+<a href="https://pronouns.cc/@vwadez">
+  <img src="https://files.catbox.moe/pyf1ew.png" alt="https://pronouns.cc/@vwadez" width="10000">
 </a>
 </p>
 
 <p align="center">
-<a href="https://vwadez.atabook.org/">
-  <img src="https://files.catbox.moe/5h11dg.png" alt="https://vwadez.atabook.org" width="10000">
+<a href="https://vwadez.straw.page/">
+  <img src="https://files.catbox.moe/5h11dg.png" alt="https://vwadez.straw.page/" width="10000">
 </a>
 </p>
 
