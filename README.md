@@ -1,7 +1,7 @@
 
 <div align="center">
 
-
+haven’t been on ponytown in a year, following cool people
 <p align="center">
 <img src="https://files.catbox.moe/t2qow7.png" width="100%" height="1000%"> 
 </p>
